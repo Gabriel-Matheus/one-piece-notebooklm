@@ -1,4 +1,4 @@
-# *O que é o Tesouro One Piece? - Teorias Sobre o Tesouro Misterioso*
+# ***O que é o Tesouro One Piece? - Teorias Sobre o Tesouro Misterioso***
 
 # Contexto e Objetivos
 
